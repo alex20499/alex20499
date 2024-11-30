@@ -2,7 +2,7 @@
 - 👀 I’m interested in UI/UX design and coding
 - 🌱 I’m currently learning interesting things
 - 📫 How to reach me ，this is my E-mail : jessen.dong@gmail.com  
-- 😄 Pronouns: hardwork man
+- 😄 Pronouns: He/His
 - ⚡ Fun fact: live in hell, hopfully move to another country
 
 <!---
